@@ -1,5 +1,5 @@
 # Cooking
-Write down what they loved
+Notice what they loved
 
 
 You cook for the family, but can't remember who and what love?
